@@ -10,7 +10,7 @@
 - Adobe Photoshop / Adobe Illustrator
 
 ### Experience
-   *In process*
+   *(In process)*
 
 ### Education
 - Sociology in Herzen State Pepagogical University of Russia, Saint-Petersburg  *(in process)*;
